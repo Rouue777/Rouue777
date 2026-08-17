@@ -268,15 +268,14 @@ https://www.linkedin.com/in/jefersonsantos36/
 
 https://github.com/Rouue777
 
+### 📱 WhatsApp
+
+[Conversar comigo pelo WhatsApp](https://wa.me/5571984914001?text=Ol%C3%A1%2C%20Jeferson!%20Encontrei%20seu%20perfil%20no%20GitHub%20e%20gostaria%20de%20conversar%20sobre%20uma%20oportunidade.)
+
 ### 📧 E-mail
 
 [jefersonrouue@gmail.com](mailto:jefersonrouue@gmail.com)
 
-📱 WhatsApp
-
-https://wa.me/qr/75SMHDL2NZFXK1
-
----
 
 <p align="center">
   <strong>JEFERSON PAIXÃO</strong>
