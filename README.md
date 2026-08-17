@@ -272,6 +272,10 @@ https://github.com/Rouue777
 
 [jefersonrouue@gmail.com](mailto:jefersonrouue@gmail.com)
 
+📱 WhatsApp
+
+https://wa.me/qr/75SMHDL2NZFXK1
+
 ---
 
 <p align="center">
